@@ -1,0 +1,1 @@
+- [Google Drive hates developers now](https://youtu.be/UMiB5Z7n6Y8)
